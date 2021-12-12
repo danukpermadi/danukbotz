@@ -1,2 +1,0 @@
-# danukbotz
-CREATED BY DANUK PERMADI
